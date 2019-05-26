@@ -4,3 +4,5 @@ You ask yourself what is Christopher Walken doing here. The taste of blood in mo
 "Have you ever danced with the devil in the pale moon light" he says.
 Why does this sound familiar, where have you heard this before?
 What does it mean?
+As you try to speak you cough, spattering blood across his salvatore ferragamos.
+
